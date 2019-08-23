@@ -1,1 +1,1 @@
-# j_chung
+# My studies
